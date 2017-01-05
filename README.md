@@ -1,0 +1,2 @@
+# Konosuba
+Entertainment
